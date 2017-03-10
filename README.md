@@ -1,2 +1,0 @@
-# vardhman
-Vardhman Namkeen
